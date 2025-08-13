@@ -1,0 +1,2 @@
+# enhanced_cshc_250809043v1_where_are_giscience_faculty_hired_from_analyzing_
+AI-Generated Project: enhanced_cs.HC_2508.09043v1_Where_are_GIScience_Faculty_Hired_from_Analyzing_ - Created by WATCHDOG Multi-Agent System
